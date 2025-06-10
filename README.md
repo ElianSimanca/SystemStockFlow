@@ -1,3 +1,3 @@
 # Sistema de Gestión de Inventarios
 
-![a](https://ibb.co/S7645DCx)
+![a](https://i.ibb.co/Lh0XYD7P/Captura-de-pantalla-2025-06-09-202725.png)
